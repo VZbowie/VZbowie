@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @VZbowie
+- 👀 I’m interested in ... everything.
+- 🌱 I’m currently learning ... everything.
+- 💞️ I’m looking to collaborate on ... nothing.
+- 📫 How to reach me bryan [DOT] bowie [AT] Verizon.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ... This is an unofficial account. If you find any code here that means I messed up and committed incorrectly.
